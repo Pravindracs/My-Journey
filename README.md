@@ -1,2 +1,2 @@
 # pravindra.github.io
-My Journey
+Pravindra Shekhar
